@@ -1,0 +1,1 @@
+Coloca aquí el logo oficial de Rutas del Caribe y demás imágenes.
